@@ -10,5 +10,5 @@ The great endeavor of our time is about to begin. To stay connected and particip
 
 The bell of democracy rings out for your help. Will you answer the call?
 
-Your humble servant,
+Your humble servant,  
 Plain Truth
